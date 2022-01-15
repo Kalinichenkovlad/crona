@@ -1,1 +1,1 @@
-# crona
+# crona token logo
